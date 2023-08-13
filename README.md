@@ -1,2 +1,0 @@
-# portfolioaadityasinha
-Contains my information
